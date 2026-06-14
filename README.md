@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CANF840717MDFBVB04
+CANF840717MDFBVB04
